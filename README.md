@@ -1,5 +1,5 @@
 # FurorArena
 
-Developers: Buld4, Nameless, YEEEEEEE
+Developers: Bulb4, Nameless, YEEEEEEE
 
 тут был бульба
