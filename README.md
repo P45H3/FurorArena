@@ -1,3 +1,3 @@
 # FurorArena
 
-Developers: Buld4, Namelesss, YEEEEEEE
+Developers: Ne Buld4, Namelesss, YEEEEEEE
